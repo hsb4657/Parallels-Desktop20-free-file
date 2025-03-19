@@ -1,3 +1,4 @@
+# 如果有用请点stars 谢谢！
 # Parallels Desktop20 free file 
 # 免费使用虚拟机激活跳过时间工具
 ![image](https://github.com/user-attachments/assets/cf8f8158-1083-4665-bbf9-8d33aba75397)
