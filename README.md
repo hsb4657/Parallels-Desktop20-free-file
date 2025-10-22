@@ -14,3 +14,9 @@
 镜像系统 微软官方发布的 Windows 11 Business Editions 24H2 ARM64
 M系列芯片下载
 https://pan.quark.cn/s/78993310fe72
+
+[2T超大容量！点击领取 >> 123网盘](https://login.123pan.com/centerlogin?register=invite&ref=SxYovd)  
+https://www.123865.com/s/SxYovd-aNNL3?pwd=xxk8#
+
+
+
